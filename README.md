@@ -1,6 +1,6 @@
 # Gabriel Baviera Araújo 👋
 
-**Universitário de Ciência da Computação | Analista de Ecommerce | 20 anos**
+**Universitário de Ciência da Computação | Analista de Marketplaces | 20 anos**
 
 📍 Franca, São Paulo, Brasil
 
